@@ -14,7 +14,7 @@ It's about honest, positive feedback to others around you. Your family, friends,
 
 _Tyler Durden in Fight Club_
 
-Don't identify yourself to the things you own. Your self-worth is more than that. Try to free yourself from the weight of unnecessary things you own. They just take your valuable time (and money) which you could spend on something far more important. Yourself.
+Don't identify yourself to the things you own. Your self-worth is more than that. Try to free yourself from the weight of unnecessary things you own. They just take your valuable time (and money) which you could spend on something far more important. Yourself and others. Love people and use things because the opposite never works.
 
 ## Principles
 ### Shuhari (Kanji: 守破離)
