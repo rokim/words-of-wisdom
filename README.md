@@ -30,3 +30,6 @@ To gain knowledge and learn something new, you have to pass these three stages. 
 _Kevin Kelly in [68 Bits of Unsolicited Advice](https://kk.org/thetechnium/68-bits-of-unsolicited-advice/)_
 
 Additionally, try building up a solid base of trust for you and the others around you, to make this work. 
+
+### Simplicity
+Simplicity is key in almost any field in our daily life. Strive for the simple solution to a problem. [Simple, correct, fast: in that order](https://drewdevault.com/2018/07/09/Simple-correct-fast.html). Try to explain a subject in a simple way, especially if it is complex. Learn how to "explain like I'm five" (ELI5). 
