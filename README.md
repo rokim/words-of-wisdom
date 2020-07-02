@@ -16,6 +16,13 @@ _Tyler Durden in Fight Club_
 
 Don't identify yourself to the things you own. Your self-worth is more than that. Try to free yourself from the weight of unnecessary things you own. They just take your valuable time (and money) which you could spend on something far more important. Yourself and others. Love people and use things because the opposite never works.
 
+### Break the system
+> If you can't beat the system, break it.
+
+_Malcolm in Malcolm in the Middle S03E02_
+
+This quote is altered to its imperative form.
+
 ## Principles
 ### Shuhari (Kanji: 守破離)
 * shu (守) "obey" — **Follow** the instructions of one master precisely (fundamentals, techniques, heuristics, proverbs). Don't worry about the underlying theroy. 
