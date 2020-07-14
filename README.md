@@ -40,3 +40,6 @@ Additionally, try building up a solid base of trust for you and the others aroun
 
 ### Simplicity
 Simplicity is key in almost any field in our daily life. Strive for a simple solution to a problem. [Simple, correct, fast: in that order](https://drewdevault.com/2018/07/09/Simple-correct-fast.html). Try to explain a subject - especially if it is complex - in a simple way. Learn how to "explain like I'm five" (ELI5). 
+
+### It's never too late
+It's never too late to start something new. Maybe something you have been thinking about for a long time, but never had the time or energy to pull it off. The story of [It's too late to collect sand](https://secondbreakfast.co/its-too-late-to-collect-sand) made me think about something I always wanted to start. A collection of quotes and principles I try to live by every day. It was tough at first, because "I would never recover from missing all the nice ideas I could have already collected". Nevertheless, here it is... 
